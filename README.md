@@ -4,7 +4,7 @@
 
 
 ## Third Year Team Project
-[DMT 02C Poster (1).pdf](https://github.com/user-attachments/files/28344802/DMT.02C.Poster.1.pdf)
+[DMT 02C Poster.pdf](https://github.com/user-attachments/files/28344802/DMT.02C.Poster.pdf)
 
 ## Second Year Design Week (Iterations and sketches)
 
