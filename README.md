@@ -2,6 +2,7 @@
 
 ## Final Year Individual Project
 
+<img width="1067" height="auto" alt="image" src="https://github.com/user-attachments/assets/8888c717-f60f-447f-82d1-5ea323f510ff" />
 
 ## Third Year Team Project
 
